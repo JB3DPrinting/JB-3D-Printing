@@ -4,7 +4,7 @@ ALL PURCHASES ARE IN CASH
 ![download](https://github.com/user-attachments/assets/efb33aa9-0533-47c3-90c2-807f83f1f398)
 £3 (Jaw does not move)
 ![174762800331620600-682aafe34d33_thumbnail](https://github.com/user-attachments/assets/79d3266d-3aa0-4810-bc34-d784cf8b8be8)
-£4 (Smaller than image)
+£4(Smaller than image)
 ![download](https://github.com/user-attachments/assets/d05a2e94-534a-41e0-977a-fe48b0d824ec)
 £2 Small £4 Large
 ![5f4db3ab6c3cacdad7a408d24b37b941](https://github.com/user-attachments/assets/2f4d998d-b492-4e35-ba59-03ce546defbc)
